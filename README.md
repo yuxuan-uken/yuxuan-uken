@@ -1,4 +1,4 @@
-## Hi there, I am Uken 👋
+## Hi there, I am Uken (Yuxuan) 👋
 
 I am a 3rd-year undergraduate student studying Applied Physics at the University of Tokyo.
 (東京大学 工学部 物理工学科 3年)
